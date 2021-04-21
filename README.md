@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Charles196498
+- 👀 I’m interested in helping to create a website for constitutional rights violations and commercial wrong doings against the people they solicit money from
+- 💞️ I’m looking to collaborate on creating a website for constitutional rights violations and commercial wrong doings against the people they solicit money from
+- 📫 How to reach me email: georgialegaloversightcommittee@gmail.com
